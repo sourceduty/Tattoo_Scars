@@ -18,11 +18,11 @@ In conclusion, tattoos are a multifaceted form of body modification that intertw
 
 #
 
-> Alex: "*I change my mind and designs too much for a permanent decision to be made on a tattoo for myself.*"
+![Artist Tattoos](https://github.com/user-attachments/assets/8f01c6af-e706-49de-a8ef-9e0e02171ade)
 
 #
 
-![Artist Tattoos](https://github.com/user-attachments/assets/8f01c6af-e706-49de-a8ef-9e0e02171ade)
+> Alex: "*I change my mind and designs too much for a permanent decision to be made on a tattoo for myself.*"
 
 #
 
