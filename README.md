@@ -32,5 +32,9 @@ In conclusion, tattoos are a multifaceted form of body modification that intertw
 <br>
 [Promotion Planner](https://github.com/sourceduty/Promotion_Planner)
 
+#
+
+![Fuck Yeah](https://github.com/user-attachments/assets/dd229f5f-ea46-402c-8a05-ee9ba1a7457a)
+
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
